@@ -1,0 +1,2 @@
+# aboutxthurzx
+thurzxdeveloper
